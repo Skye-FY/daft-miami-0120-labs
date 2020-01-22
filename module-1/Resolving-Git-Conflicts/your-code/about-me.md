@@ -1,1 +1,1 @@
-Living sucks.
+It's great to be alive!
